@@ -22,5 +22,3 @@
 =========================
 
 <<<<<<< HEAD
-
-# do you guys have nigga fetish
